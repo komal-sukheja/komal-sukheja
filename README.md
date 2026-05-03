@@ -30,7 +30,7 @@
 
 ### 📫 Let's Connect
 - 💼 [LinkedIn](https://www.linkedin.com/in/komal-sukheja/)
-- 📧 komalsukheja2001@gmail.com
+- 📧 komalsukheja83@gmail.com
 - 📂 Check out my pinned projects below!
 
 ### ⚡ About Me
